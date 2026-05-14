@@ -1,4 +1,4 @@
-
+Download Free king legacy Script new for king legacy today and unlock auto-collect and silent aim for a superior gaming experience. Whether you're a beginner or a pro, this script
 
 
 
